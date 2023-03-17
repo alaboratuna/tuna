@@ -7,3 +7,7 @@
       What do you think about LGBTQ+?
       
 I'm not gay, but I don't give a f##k because people's opinions are like that and it doesn't hurt me either.
+
+
+      Türk müsün 
+atatürk profil fotoğrafım olduğuna göre?
